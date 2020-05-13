@@ -1,7 +1,7 @@
 # TZG-LTCat-s-war
 ## R.I.P. TZG
 
-![默哀](https://s1.ax1x.com/2020/05/13/YUv0cn.jpg)
+![默哀](https://s1.ax1x.com/2020/05/13/Yd9kAx.jpg)
 
 # TZG 事件始末 - 详细时间线与证据
 
