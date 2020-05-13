@@ -19,7 +19,7 @@
 ***
 # TZG无力的辩护
 ***
-[看这里](https://zhuanlan.zhihu.com/p/139487867)
+[看这里](https://archive.vn/EsFtj)
 
 [还有这里](https://zhuanlan.zhihu.com/p/139305914)
 
