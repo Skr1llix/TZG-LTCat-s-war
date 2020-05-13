@@ -1,7 +1,7 @@
 # TZG-LTCat-s-war
 ## R.I.P. TZG
 
-![默哀](https://s1.ax1x.com/2020/05/13/YUv0cn.jpg)
+![默哀](https://s1.ax1x.com/2020/05/13/Yd9kAx.jpg)
 
 # TZG 事件始末 - 详细时间线与证据
 
@@ -19,7 +19,7 @@
 ***
 # TZG无力的辩护
 ***
-[看这里](https://zhuanlan.zhihu.com/p/139487867)
+[看这里](https://archive.vn/EsFtj)
 
 [还有这里](https://zhuanlan.zhihu.com/p/139305914)
 
