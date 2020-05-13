@@ -9,6 +9,9 @@ TZG 事件始末 - 详细时间线与证据
 
 [TT在知乎上对于TZG发文回复 PCL事件 的质疑（梅开二度）](https://zhuanlan.zhihu.com/p/139628626)
 
+[TT在知乎上对于TZG发文回复 PCL事件 的质疑（三 重 打 击）](https://zhuanlan.zhihu.com/p/140000516)
+
+
 ***
 # TZG无力的辩护
 ***
