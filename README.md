@@ -1,5 +1,9 @@
 # TZG-LTCat-s-war
-TZG 事件始末 - 详细时间线与证据
+## R.I.P. TZG
+
+![默哀](https://s1.ax1x.com/2020/05/13/YUv0cn.jpg)
+
+# TZG 事件始末 - 详细时间线与证据
 
 [知乎专栏](https://zhuanlan.zhihu.com/p/139114864)
 
