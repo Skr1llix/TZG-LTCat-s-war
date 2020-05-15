@@ -1,31 +1,33 @@
 # TZG-LTCat-s-war
-## R.I.P. TZG
+### R.I.P. TZG
 
-![默哀](https://s1.ax1x.com/2020/05/13/Yd9kAx.jpg)
+![RIP.jpg](https://i.loli.net/2020/05/16/JbeNcrhqtE37H5u.jpg)
 
-# TZG 事件始末 - 详细时间线与证据
+----
 
-[知乎专栏](https://zhuanlan.zhihu.com/p/139114864)
+### TZG 事件
+#### 敬请观赏TZG女士高强度对线现场
 
-[MCBBS](https://www.mcbbs.net/thread-1042063-1-1.html)
+- [PCL事件 知乎原文（专栏）](https://zhuanlan.zhihu.com/p/139114864)
 
-[TT在知乎上对于TZG发文回复 PCL事件 的质疑](https://zhuanlan.zhihu.com/p/139523880)
+- [PCL事件 相关 MCBBS 贴](https://archive.vn/9vuMS)
 
-[TT在知乎上对于TZG发文回复 PCL事件 的质疑（梅开二度）](https://zhuanlan.zhihu.com/p/139628626)
+- [TT在知乎上对于TZG发文回复 PCL事件 的质疑](https://archive.vn/qVYuv)
 
-[TT在知乎上对于TZG发文回复 PCL事件 的质疑（三 重 打 击）](https://zhuanlan.zhihu.com/p/140000516)
+- [TT在知乎上对于TZG发文回复 PCL事件 的质疑（梅 开 二 度）](https://archive.vn/6P7R2)
 
+- [TT在知乎上对于TZG发文回复 PCL事件 的质疑（三 重 打 击）](https://archive.vn/uv5oR)
 
-***
-# TZG无力的辩护
-***
-[看这里](https://archive.vn/EsFtj)
+- [TZG女士知乎首次回应](https://archive.vn/QQieW)
 
-[还有这里](https://zhuanlan.zhihu.com/p/139305914)
+- [TZG女士高强度对线](https://archive.vn/EsFtj)
 
-***
-# 可能是怂了
-***
-[我 车 软 了.png](https://zhuanlan.zhihu.com/p/140750511)
+> 鉴于阿里“云”工程师事件，建议各用人单位谨慎对待TZG女士，以免对贵单位造成不必要的笋丝，蟹蟹
+
+----
+
+### 可能是怂了
+
+- [我 车 软 了.png](https://archive.vn/r5mTz)
 
 To be continued…
