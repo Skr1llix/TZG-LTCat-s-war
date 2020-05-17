@@ -1,3 +1,4 @@
+## [相关TG频道](https://t.me/thezihangu)
 # TZG-LTCat-s-war
 ### R.I.P. TZG
 
